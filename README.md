@@ -1,0 +1,2 @@
+
+https://trello.com/invite/b/68434c4006b926b558fe38ce/ATTId2054576e2dc0f8521e6e309a4a5f3c53247C07A/gestor-de-eventosmanuelcanasperez-angulo
